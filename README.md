@@ -1,4 +1,8 @@
 # Alpha-Plan
+
+Three things cannot long stay hidden: the sun, the moon and the truth. – Buddha
+
+
 Setting some high-level tasks
 https://youtu.be/uWNw13ZOaEY
 
